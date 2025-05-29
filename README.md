@@ -1,4 +1,4 @@
-🐾 Dog's Bite – Where Every Meal is a Tail-Wagging Celebration! 🐶
+🐾 Dog's Bite – Where Every Meal is a Tail-Wagging Celebration!! 🐶
 
 
 Welcome to Dog's Bite, your ultimate destination for premium, nutritious pet food crafted to keep your best friend happy, healthy, and energized. This website blends vibrant design with user-centric functionality, creating an unforgettable shopping experience for pet lovers everywhere.
